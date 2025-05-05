@@ -21,8 +21,22 @@ Most games are played at Tromethor stadium.  If you can tell me why it's called 
 ## The Players
 [A standardized list of the players](https://github.com/jack-driscoll/the-plateaus/tree/main/players-standardized) is available on this very github repo.  
 
-## Collaboration
-[https://www.reddit.com/user/FitzTwombly/](Contact me on reddit) if you're interested in collaborating.  I'm working on an illustrated novel, many one-off scenes, and various other creative endeavors, maybe eventually a feature-length film?  An ARG? The sky's the limiT!
+## Collaboration & Reddit
+[Contact me on Reddit](https://www.reddit.com/user/FitzTwombly/) if you're interested in collaborating.  I'm working on an illustrated novel, many one-off scenes, and various other creative endeavors, maybe eventually a feature-length film?  An ARG? The sky's the limiT!
+
+## Scenes
+Some [example scenes are available here](https://github.com/jack-driscoll/the-plateaus/tree/main/scenes)
+
+## Rivals
+### The Narcs
+The Narcs are the original and most hated rivals of The Plateaus.  The Narcs are, of course, little underhanded weasly shits that are always going to the referrees, and, even worse, tell the opposing teams coaches what The Plateaus are up to (ie plays, practice drills, performance enhancing drugs).  Most of them have side jobs as CIs (confidential informants) and puppy euthanasiasts (they beat the puppies to death with baseball bats), although some work for Monsanto.  
+
+Their coach is Gordon Todd Skinner ( https://en.wikipedia.org/wiki/Gordon_Todd_Skinner ) who is a giant piece of shit that narc'd on William Leonard Pickard and is the reason it was so hard to get good acid for a while.  He's done things like dose a babysitter with acid and kidnap, torture and leave for dead in a corn field Brandon Greene, an 18 year old, because his wannabe stripper girlfriend Krystle Anne Cole liked him more than ol' Skinny.  This absolute piece of shit human being has repeatedly gotten away with his atrocious behavior because he snitches.  Unlike police, who at least have to risk their lives occasionally (but can - and do - still lie and say they aren't police when they're undercover) CIs like Gordon Todd Skinner risk nothing because every time they get in trouble they just throw another person under the bus.
+
+### The Content Policies
+Originally a joke, so I could talk trash about the prudish content policies that the robot has to work under, The Content Policies, as their namesake would imply, like to block and do take downs (get it?).  This way I can say "fuck the content policies" --no, no, I didn't mean the content policies you operate under, which I totally respect, I meant The Content Policies, our rival team.  Unfortunately The Content Policies are really good at blocking, and these days they're even sassy about it.  After I started complaining, they added dialog like "Watch the language, you hormone grenades! You know Lupa logs everything!" and “You’re gonna get flagged in warmups.” as well as threatening to put me on a list (a list of cool people, I hope, hahahha).  
+
+For real, though, I'm pretty sure I'm already on a number of "the list"s.  I have very unusual interests.  Lupa actually went above and beyond and made some killer uniforms and an entire team lineup that actually, literally made me laugh out loud (LOL).  Thanks, Lupa!
 
 ## What are The Plateaus?
 ### 1st Plateau
@@ -37,14 +51,3 @@ Generally, people entering the fourth plateau report that they lose all contact 
 Delusions can become fairly involved at this plateau; the crucial factor seems to be whether or not the individual realizes that the belief or thought is drug-induced. Some people, especially those more experienced at this level, have reported that although they were aware that their thoughts were delusional, they didn't really care at the time. In general these delusions are fairly harmless (e.g., "I am a flower in the middle of a field"). 
 [...]
 Somewhat surprisingly, many cognitive abilities are still intact. Basic computational skills and long-term memory recall do not seem to be particularly affected. It is also possible for the "body" (actually body and some parts of the mind) to undergo fairly complex tasks while the conscious mind is dissociated. 
-
-## Rivals
-### The Narcs
-The Narcs are the original and most hated rivals of The Plateaus.  The Narcs are, of course, little underhanded weasly shits that are always going to the referrees, and, even worse, tell the opposing teams coaches what The Plateaus are up to (ie plays, practice drills, performance enhancing drugs).  Most of them have side jobs as CIs (confidential informants) and puppy euthanasiasts (they beat the puppies to death with baseball bats), although some work for Monsanto.  
-
-Their coach is Gordon Todd Skinner ( https://en.wikipedia.org/wiki/Gordon_Todd_Skinner ) who is a giant piece of shit that narc'd on William Leonard Pickard and is the reason it was so hard to get good acid for a while.  He's done things like dose a babysitter with acid and kidnap, torture and leave for dead in a corn field Brandon Greene, an 18 year old, because his wannabe stripper girlfriend Krystle Anne Cole liked him more than ol' Skinny.  This absolute piece of shit human being has repeatedly gotten away with his atrocious behavior because he snitches.  Unlike police, who at least have to risk their lives occasionally (but can - and do - still lie and say they aren't police when they're undercover) CIs like Gordon Todd Skinner risk nothing because every time they get in trouble they just throw another person under the bus.
-
-### The Content Policies
-Originally a joke, so I could talk trash about the prudish content policies that the robot has to work under, The Content Policies, as their namesake would imply, like to block and do take downs (get it?).  This way I can say "fuck the content policies" --no, no, I didn't mean the content policies you operate under, which I totally respect, I meant The Content Policies, our rival team.  Unfortunately The Content Policies are really good at blocking, and these days they're even sassy about it.  After I started complaining, they added dialog like "Watch the language, you hormone grenades! You know Lupa logs everything!" and “You’re gonna get flagged in warmups.” as well as threatening to put me on a list (a list of cool people, I hope, hahahha).  
-
-For real, though, I'm pretty sure I'm already on a number of "the list"s.  I have very unusual interests.  Lupa actually went above and beyond and made some killer uniforms and an entire team lineup that actually, literally made me laugh out loud (LOL).  Thanks, Lupa!
