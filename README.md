@@ -18,6 +18,12 @@ We are taking membership, you can find contact info in the main repo.  You requi
 ## Tromethor Stadium
 Most games are played at Tromethor stadium.  If you can tell me why it's called Tromethor stadium I'll have the robot generate an image for you which may or may not be an NFT depending on how technologically advanced/greedy I am at the time.
 
+## The Players
+[A standardized list of the players](https://github.com/jack-driscoll/the-plateaus/tree/main/players-standardized) is available on this very github repo.  
+
+## Collaboration
+[https://www.reddit.com/user/FitzTwombly/](Contact me on reddit) if you're interested in collaborating.  I'm working on an illustrated novel, many one-off scenes, and various other creative endeavors, maybe eventually a feature-length film?  An ARG? The sky's the limiT!
+
 ## What are The Plateaus?
 ### 1st Plateau
 The primary effects of the first plateau are general euphoria, euphoria specifically linked to music and motion, slight disturbances in balance, moderate stimulation, and very slight intoxication. The intoxication and balance disturbances are similar to that induced by alcohol, but much weaker and without the mental confusion; there is little if any mental sluggishness or confusion with a first plateau trip.
