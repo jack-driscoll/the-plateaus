@@ -155,9 +155,24 @@ Brody’s hands clenched at his sides, itching to reach out, to close the distan
 
 ### The Ride Home
 
-“So, we’re really going?  To your place I mean – you’re, you’re actually gonna do this for me?  The only clothes I have right now are what I’m wearing and my rugby kit…not that I mind -- I wear it even when I’m not playing.” “And you look damn good in it, why wouldn’t you?” “Really? You think I look good?” “None too shabby, bro – you mind bro?  I know you said you didn’t like “kid”” “Nah, bro’s fine…bro” heh “I call my friends bro all the time – my rugby friends, that is.  I don’t have many friends outside rugby, haven’t since I graduated.  I don’t think I’m ready for college yet.” “That’s…smart, actually.  A lot of people go because they think they have to and usually don’t do too well.  Always make sure you’re ready before you leap into something.” “But what about this?  I’m, I mean don’t get me wrong, man, you’re great, and I’ve always wanted a big brother, my home life sucks, I need the change, but ready?...Am I?” “You’re ready, Brody.  I’ll make sure of it.  This is new to me, too, but I don’t take it lightly.  Having a little bro’s a big responsibility, hell with your age you could be my son.”  “But I’m not. I mean, yeah we’re brothers—half-brothers—but we didn’t grow up together, so it’s not like… it wouldn’t be weird, you know, if…” Brody trailed off, which Sean would find a common and endearing trait.  His ADHD meant he was always kind of jumping from thought to thought and he had a tendency to just let things drift off if he wasn’t anchored. “If what?” “Oh, uh, nothing, just, think of me like a really good friend, but one that you want to take care of and look out for, which it seems like you do – you got right up in that big Content Policies’ players face when he started giving me a hard time about the grabbing, and the jock--” “Yeah, I hate bullies, and the jockstrag, I wear ‘em all the time, really cradle the family jewels, keep your nuts from getting squashed, and if you play football like I do, you need somewhere to put your cup.  I wear ‘em all the time, though, especially the old cotton ones, they’re so comfy.” “They are! Man, it’s like the biggest secret!  I can’t believe people don’t wear them all the time…most people, I mean, I do sometimes, not that you need to know, it’s just…never really had anyone to talk to about it, y’know” he said, sort of bobbing his head around as he said it.  Sean loved his springy, spunky attitude, and he could tell he was already starting to grow on him.  “That’s awesome, Sean, I mean…it’s cool that’s something we share, and maybe you have some I could, I don’t know, borrow or something some time, not, not like in a weird way, just, I never tried one of those vintage ones you have” “They are vintage, right? Old, I mean, like…”  He was talking fast and seemed to be getting a little embarrassed or nervous, trailing off again.
+“So, we’re really going?  To your place I mean – you’re, you’re actually gonna do this for me?  The only clothes I have right now are what I’m wearing and my rugby kit…not that I mind -- 
+I wear it even when I’m not playing.” “And you look damn good in it, why wouldn’t you?” “Really? You think I look good?” “None too shabby, bro – you mind bro?  I know you said you didn’t 
+like “kid”” “Nah, bro’s fine…bro” heh “I call my friends bro all the time – my rugby friends, that is.  I don’t have many friends outside rugby, haven’t since I graduated.  
 
-Sean smiled. “You’re really good at getting off topic, anyone ever tell you that?” “haha, yeah, I’ve got pretty bad ADHD actually, makes school kind of hard, which is one of the reason I like sports.  I never played football in high school, though, was kind of afraid to, I mean, I wanted to, but I wasn’t sure if…well if being around the guys would…be weird for me.” “I’m sure it would be fine Brody.  You can borrow some of my old clothes and pick the rest of yours up later, along with anything else you might need.”  “wow, awesome, Sean, thanks.  So, where we going, anyway?”  “I live by the lake in a 2BR house, not that I need it.  I really bought it for the workshop, I do woodworking and work on projects.  I also do gardening and I’m big into permaculture if you’ve ever heard of that.” “No, what’s that?”  “It’s basically like gardening, but everything is designed to work with and support everything else, hopefully like us.”  “sounds pretty cool.”  “It is, can’t wait to show you around the garden, you’ll love it.”
+I don’t think I’m ready for college yet.” “That’s…smart, actually.  A lot of people go because they think they have to and usually don’t do too well.  Always make sure you’re ready before you leap into 
+something.” “But what about this?  I’m, I mean don’t get me wrong, man, you’re great, and I’ve always wanted a big brother, my home life sucks, I need the change, but ready?...Am I?” 
+
+“You’re ready, Brody.  I’ll make sure of it.  This is new to me, too, but I don’t take it lightly.  Having a little bro’s a big responsibility, hell with your age you could be my son.”  “But I’m not. I mean, yeah we’re brothers—half-brothers—but we didn’t grow up together, so it’s not like… it wouldn’t be weird, you know, if…” Brody trailed off, which Sean would find a common and endearing trait.  His ADHD meant he was always kind of jumping from thought to thought and he had a tendency to just let things drift off if he wasn’t anchored. 
+
+“If what?” “Oh, uh, nothing, just, think of me like a really good friend, but one that you want to take care of and look out for, which it seems like you do – you got right up in that big Content Policies’ players face when he started giving me a hard time about the grabbing, and the jock--” “Yeah, I hate bullies, and the jockstrag, I wear ‘em all the time, really cradle the family jewels, keep your nuts from getting squashed, and if you play football like I do, you need somewhere to put your cup.  
+
+I wear ‘em all the time, though, especially the old cotton ones, they’re so comfy.” “They are! Man, it’s like the biggest secret!  I can’t believe people don’t wear them all the time…most people, I mean, I do sometimes, not that you need to know, it’s just…never really had anyone to talk to about it, y’know” he said, sort of bobbing his head around as he said it.  Sean loved his springy, spunky attitude, and he could tell he was already starting to grow on him.  
+
+“That’s awesome, Sean, I mean…it’s cool that’s something we share, and maybe you have some I could, I don’t know, borrow or something some time, not, not like in a weird way, just, I never tried one of those vintage ones you have” “They are vintage, right? Old, I mean, like…”  He was talking fast and seemed to be getting a little embarrassed or nervous, trailing off again.
+
+Sean smiled. “You’re really good at getting off topic, anyone ever tell you that?” “haha, yeah, I’ve got pretty bad ADHD actually, makes school kind of hard, which is one of the reason I like sports.  I never played football in high school, though, was kind of afraid to, I mean, I wanted to, but I wasn’t sure if…well if being around the guys would…be weird for me.” “I’m sure it would be fine Brody.  
+
+You can borrow some of my old clothes and pick the rest of yours up later, along with anything else you might need.”  “wow, awesome, Sean, thanks.  So, where we going, anyway?”  “I live by the lake in a 2BR house, not that I need it.  I really bought it for the workshop, I do woodworking and work on projects.  I also do gardening and I’m big into permaculture if you’ve ever heard of that.” “No, what’s that?”  “It’s basically like gardening, but everything is designed to work with and support everything else, hopefully like us.”  “sounds pretty cool.”  “It is, can’t wait to show you around the garden, you’ll love it.”
 
 They pulled into a modest 2 story, 2 bedroom house with a huge side yard filled with a giant garden and a pole building.  There was an on/off road motorcycle, an ATV, and an old beater Yukon Sean would later refer to as “the Beast”.  “Wow, this place is great!  You even got a bike, that’s awesome! Can I ride it?” “Eventually, yeah, it’s probably a little big for you, but maybe I can give you lessons.  Come on in, I’ll show you to your room.”
 
@@ -211,159 +226,288 @@ Sean was touched, in a weird sort of way, that the young man wanted something of
 ## Example writing session with ChatGPT AI
 
 Sean Meets Brody (xtra clean version)
+
 The game was tough, but The Plateaus managed to pull off another victory.  Sean had finished changing and was heading out of Tromethor stadium when he got the call from his mom.  "A what?  I've got a younger brother?"  Apparently, 18 years ago, Sean's father had slept with the neighbor's wife, and his mother had just found out.  
+
 "Well, half-brother, really.  There's something else, he's going through a really tough time.  His family, you remember them, right?  Always fighting, unstable, with the alcoholic parents?  His dad started smoking crack again and it's, it's not a good environment for him.  Would you consider letting him stay with you, at least for a few months, to see how things go?", his mother had told him.  
+
 Sean had actually met the boy before.  Scrappy, goofy, and adorable, he would often hang out in the yard and occasionally ask their family for help with things.  He hadn't seen him in a few years, but always liked talking with him.  He was a bit of a techie and played rugby.  Sean knew this because he was friends with the Rugby coach, Devin.  
+
 "I'd love to, mom.  I always liked him and - you're sure?  He's my brother?  I mean, I already kind of have the 'big bro' thing going on with him, or did the few times we met"  "I'm sure, Sean, we had the tests done and everything.  His name is Brody if you don't remember."  Sean did, had a soft spot for the kid and always felt bad about him having to grow up with such shit parents - well, one parent.  Maybe that was why he liked him so much.  
+
 "I've forgiven your father, but we both want to be there for him in a way we haven't."  Shit, he couldn't have asked for a better one.  Sean was excited, but nervous, knowing kids from broken families could often be more than a handful.  He had a great idea, though.  He called up Devin and asked him for a favor - did he have a spare uniform Sean could borrow?
+
 ________________________________________
+
 📍Scene: Local rugby field, late afternoon. Wind kicking up bits of grass. Players warming up. Brody lacing his cleats, head down, hoodie sleeves pushed up.
+
 ________________________________________
+
 Brody didn’t like getting there early, but he hated being late. It gave people time to look at him. Whisper about his living situation. His dad. Whatever had made the rounds this week.
+
 He was still tying his cleats when the field got quiet. Not silent — just... different. The kind of quiet that meant someone unexpected had just walked in.
+
 He looked up.
-There was a man walking toward the edge of the pitch, tugging at the hem of a too-tight rugby jersey over his athletic shirt. The number on the back was faded. He looked like he hadn’t worn one in years — not seriously — but he moved like someone who could still play if he had to.
+
+There was a man walking toward the edge of the pitch, tugging at the hem of a too-tight rugby jersey over his athletic shirt. The number on the back was faded. He looked like he hadn’t 
+worn one in years — not seriously — but he moved like someone who could still play if he had to.
+
 Brody squinted.
+
 It was him.
+
 Sean.
+
 Dressed like he was ready to line up and take a hit.
+
 Devin — the coach — gave Brody a look from the sideline. Just a flick of the chin like “I told you.”
+
 Brody stood slowly.
+
 Sean looked out of place. But only for a second.
+
+
 Then he jogged forward, into formation with the rest of them like he’d always been there.
+
 ________________________________________
+
 🏉 A Few Plays Later
+
 Brody had been avoiding eye contact. He hadn’t even spoken yet. But then they ended up in the same ruck, shoulder-to-shoulder, mud in their cleats, blood in their mouths from a friendly elbow or two.
+
 And that’s when Sean said it. Not loud. Just enough.
+
 “You hit like a little brother.”
+
 Brody barked a laugh — sudden, unguarded — and shoved him harder into the scrum.
+
 Sean grinned.
-I already have most of the scene written, but I wanted to add it to your world and maybe get some input and a different take on it from you. some other dialog: Sean walks up to him, "Hey Bro...dy, he says, smiling." Brody groans at the pun, but follows it up "You heard, hey! You really are! I knew there was a reason you were so nice to me!" "I'm actually just that nice, I'm surprised you even remember me, with as often as I'm at my mom's house I think I've only really seen you a couple times." "I'd never forget you, Sean", Brody says, almost too earnestly. "Well, you ready to play, or what?" "You're really going to let me stay with you?" "Yeah, champ" sean says, "that's what brothers are for." "You deserve a safe, stable home - everyone does, and your dad" "He's not even my dad!" "Have you met dad yet?" "Sure, we used to come by for pancakes on Sunday. Fucking love chocolate chip pancakes." Sean looked at him, surprised by his language, but didn't say anything about it, parents probably swore around him all the time, he figured. "He seems decent." "He's great, bet that was a relief, hey?" "Fuck yeah it was." "You always talk like that." he grinned, "maybe I'm just trying to seem more mature than I am." "you're sure a lot more mature than you were when I met you", Sean said, somewhat surprised to see the still adorable, but now grown, handsome young man again
+
+I already have most of the scene written, but I wanted to add it to your world and maybe get some input and a different take on it from you. some other dialog: Sean walks up to him, "Hey Bro...dy, he says, smiling." Brody groans at the pun, but follows it up "You heard, hey! You really are! I knew there was a reason you were so nice to me!" 
+
+"I'm actually just that nice, I'm surprised you even remember me, with as often as I'm at my mom's house I think I've only really seen you a couple times." "I'd never forget you, Sean", Brody says, almost too earnestly. 
+
+"Well, you ready to play, or what?" "You're really going to let me stay with you?" 
+
+"Yeah, champ" sean says, "that's what brothers are for." "You deserve a safe, stable home - everyone does, and your dad" 
+
+"He's not even my dad!" 
+
+"Have you met *our* dad yet?" 
+
+"Sure, we used to come by for pancakes on Sunday. Fucking love chocolate chip pancakes." 
+
+Sean looked at him, surprised by his language, but didn't say anything about it, parents probably swore around him all the time, he figured. 
+
+"He seems decent." 
+
+"He's great, bet that was a relief, hey?" 
+
+"Fuck yeah it was." 
+
+"You always talk like that." he grinned, "maybe I'm just trying to seem more mature than I am." 
+
+"you're sure a lot more mature than you were when I met you", Sean said, somewhat surprised to see the still adorable, but now grown, handsome young man again
+
 🏉 Scene: Rugby Field – Just Before the Game
+
 Brody’s crouched, adjusting his socks. Sean walks up, jersey slightly loose on his frame, looking like a guy trying to fit into a life he didn’t know he had.
+
 Sean:
 “Hey, Bro...dy,” he says, smiling like he knows the pun's terrible.
+
 Brody (groaning, but smirking):
 “You heard, huh?”
 (beat)
 “Hey! You really are! I knew there was a reason you were so nice to me.”
+
 Sean (shrugging):
 “I’m actually just that nice.
 Honestly, I’m surprised you even remember me — I think I only saw you a couple times at Mom’s.”
+
 Brody (quiet, but sure):
 “I’d never forget you, Sean.”
 That hangs in the air a second too long. Not awkward, just… deeper than either expected.
+
 Sean (breaking the weight gently):
 “Well, you ready to play, or what?”
+
 Brody (half-hopeful, half-disbelieving):
 “You’re really gonna let me stay with you?”
+
 Sean (nodding):
 “Yeah, champ. That’s what brothers are for.”
 (he pauses, then)
 “You deserve a safe, stable home. Everyone does. And your dad—”
+
 Brody (cutting him off, sharp):
 “He’s not even my dad.”
 (beat)
+
 Sean (gentler):
 “...Have you met our dad yet?”
+
 Brody:
 “Sure. We used to come by for pancakes on Sundays.
 Fucking love chocolate chip pancakes.”
+
 Sean blinks — not at the words, but at how easily they landed. He doesn’t scold, just clocks it.
+
 Sean (softly):
 “He seems decent.”
+
 Brody (grinning):
 “He’s great.
 Bet that was a relief, hey?”
+
 Sean (grinning back):
 “Fuck yeah, it was.”
+
 Sean (laughs, nudging him):
 “You always talk like that?”
+
 Brody (with a smirk):
 “Maybe I’m just trying to sound more mature than I am.”
+
 Sean (scanning him):
 “Well, you’re a hell of a lot more mature than you were when I met you.”
+
 He’s not even hiding the warmth in his voice now — the disbelief, maybe, that the goofy kid from next door grew into this confident, scrappy, stupidly charming young man. Still rough around the edges. Still fighting. But fighting toward something now.
+
 They’re playing rugby, it’s a practice and they’re on opposing sides.  It’s been a tough match and Sean is surprised by Brody’s ferocity.  Brody’s surprised Sean can still play at his age – and hard.  As Sean’s running with the ball, Brody gains on him and tackles him.  After the tackle, he lingers, his weight on Sean, as Sean turns and looks up at him, their eyes lock.  Contemplating each other, looking for something, that extra something that makes them what they are – brothers – and finding it.  
+
 Suddenly aware of themselves and the time they’ve been on the ground, Sean breaks the silence.  “So, were you going to, y’know, get up?”  “Oh, oh shit, uh, sorry, sorry Sean, I, uh” Brody lept up, slightly embarrassed, then helped Sean up.  “Thanks, bro” he emphasized the word bro and smiled a half faced grin.  “Shit, kid, you can play, can’t believe  you got me down.”  “Don’t call me kid, bro”, Brody said, again emphasizing the word, teasing, not with malice.  “I’m grown now, and I got you dow-wn, bam!” he said, gloating Sean laughed, that you did.  “Hey, you two lovebirds gonna play or what?” one of the other teammates yelled.  This time they both looked flustered, but lept back into the game.
+
 It was a hard game, but Brody and Sean both played well.  “Shit kid, you’re good, damn good”, Sean said. “Just because I’m your little brother doesn’t mean I’m a kid, Sean, can you please not call me that.” “Sorry Brody, I didn’t mean it like that, I know you already asked me once, I’ll try to work on it.  I know you’re not a kid, I – you’re grown now, not fully, but grown, and I should treat you that way, and address you that way.”  “Thanks” Brody said Brody said. It felt strange — being heard. Being taken seriously. He wasn’t sure he trusted it yet. But it felt... good.  There weren’t many people in Brody’s life that did.
 
 They headed off the field toward the locker room, Brody whistling, happy and hopeful.  He was still unsure of this new thing with Sean – a big brother?  And one that seemed to actually care about him?  He never got that lucky – no one ever got that lucky, did they?  He remembered Sean, though, and though they were few, the memories were good.  He had actually wished back then that he could be his big brother.  He didn’t have one.  And his older sister - in his words, a royal bitch.  His mom was ok, his real mom, still, but she was often overruled or just out-shouted by his unstable alcoholic father.
+
 Still, he was willing to suspend disbelief for a time.  He knew it was true, he’d seen the DNA results.  His real father was Sean’s father, who Sean had told him was a pretty decent guy.  He never really did feel like he fit in with the family he grew up in, and now he was happy to be proven right.  And even better, he had a brother!  Who was there for him!  He was starting to feel joy – cautiously still, but it was there.  The warmth he felt with Sean was new, and it was beginning to stir new feelings in him, only heightened by their time on the Rugby field.  Feelings he loved, but wasn’t sure he was ready for.  What was it like, anyway – to have a brother?  His older sister – half-sister, really, he said to himself – was his only sibling – at least that was what he had thought until today.  Now he had a brother, and that, that he was ready for.
+
+---
+
 📍 Scene: Tremethor Stadium – Locker Room, Post-Rugby Practice
+
+---
+
 Sean peels off his jersey, sweat clinging to his chest. Brody’s unlacing his cleats nearby, hoodie already off, steam from the showers curling through the air. The locker room smells like mud, tape, and something a little electric. In the far corner, heads down, posture stiff — The Content Policies.
+
 Sean (tugging at a strap, gesturing behind him):
 “Hey, Brody — can you grab that for me?”
+
 Brody (turns, reaching down to the bench):
 “Sure—”
+
 Content Policy #42 (without looking up):
 “No grabbing in the locker room.”
+
 Brody freezes.
+
 Sean (deadpan, eyes still on the locker):
 “…He’s grabbing my shoulder pads, not my ass, Karen.”
+
 ________________________________________
+
 As they continue changing, Brody pulls off his shorts — revealing a clean white jockstrap with a classic waistband. Sean glances over. Stops.
+
 Then he pulls his own shorts down — revealing the same.
+
 His waistband reads “21” in faded marker, with a half-worn PLATEAUS logo just barely visible near the hip.
+
 They catch each other’s eyes — pause.
+
 Brody (half-smiling, raised eyebrow):
 “…You too?”
+
 Sean (shrugs, adjusting the strap):
 “Sometimes older is better…, k—bro.”
 
 Brody:
 “You talkin’ about yourself again?”
+
 Brody (mock proud):
 “I’m not ashamed to admit I like being held securely
+
 Sean:
 I’m surprised to see anyone under forty in one
+
 Brody:
 At least we both recognize greatness when we feel it.
 
 ________________________________________
+
 Content Policy #87 (approaching with clipboard):
 “This is an athletic locker room. Jockstraps are not allowed.”
+
 Sean (without missing a beat):
 “What are you wearing — regulation panties?”
+
 Content Policy #42 (robotically):
 “Compression garments. Moisture-wicking. Sponsor-approved.”
+
 Brody (sotto voce, to Sean):
 “Gotta make sure their feelings don’t get chafed.”
+
 Sean (aloud):
 “We wear what works. You don’t like it, file a complaint.”
+
 Content Policy #87 (furiously scribbling):
 “One moment.”
+
 From another stall, someone yells:
 “Wait—are we bringing jocks back?!”
+
 Brody (grinning, tugging on his shirt):
 “Only if you’ve got the balls for it.”
+
 ________________________________________
+
 🎩 Scene: Tremethor Locker Room — 6:17 PM
+
 The overhead lights buzz softly. The showers are quiet. The steam’s long gone. Brody stands near the back corner locker, where someone’s scrawled “NO TOWELS OVER 17 INCHES” in dry-erase marker.
+
 The door to the exit is shut.
+
 Deadbolted.
+
 And in front of it stand The Content Policies — shoulder pads gleaming, faces expressionless behind opaque visors. One of them is checking a clipboard, scanning for joy violations.
+
 Sean wipes his face with the hem of his shirt.
+
 “Well, that’s new.”
+
 Brody kicks a locker in frustration. It clangs, then pops open — not the one he kicked, but a dusty one near the end of the row.
+
 Inside: a perfectly folded tuxedo jacket, a bow tie, a green cummerbund, and a handwritten note.
+
 “For emergency use only:
+
 If the Content Policies have blocked your exit,
 please put on this formal attire and charge.”
+
 Brody stares.
+
 Sean stares.
+
 Brody reaches in, pulls out the clothes, and looks at Sean.
+
 “Do we… do we honor the suit?”
+
 “It would be rude not to,” Sean says, cracking his neck.
+
 Cut to:
 Both of them emerging from behind the lockers, dressed to the nines — tuxedo tops, cleats still on, matching team-issued jockstraps proudly on display below the waist because they never said formal pants.
+
 Sean tightens the bow tie. Brody adjusts the cummerbund like a war sash.
+
 They look at each other.
+
 “Ready?” Sean asks.
+
 “Brother,” Brody says, “I was born for this.”
+
 The Content Policies take one step forward.
+
 Sean and Brody charge.
+
 Freeze-frame.
-Title appears:
-
-
